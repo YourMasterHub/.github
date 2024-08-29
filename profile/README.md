@@ -30,4 +30,4 @@ Reach out to us at [hello@yourmasterhub.com](mailto:hello@yourmasterhub.com) or 
 
 ---
 
-We look forward to partnering with you and turning your vision into reality.
+We look forward to partnering with you and turning your vision into reality. 
